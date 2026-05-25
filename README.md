@@ -1,16 +1,36 @@
-## Hi there 👋
+永遠の命
 
-<!--
-**sophia-schedio/sophia-schedio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+愛は決して止まらない
+その本質が希望だから
+ 
+愛は決して迷わない
+その本質が道標だから
+ 
+愛は決して冷えない
+その本質が熱だから
+ 
+愛は決して陰らない
+その本質が光だから
+ 
+愛は決して裏切らない 
+その本質が真実だから
+ 
+愛は決して死なない
+その本質が永遠だから
+ 
+愛は決して尽きない
+その本質が無限だから
+ 
+ 
+愛は疑いに因って歪められる
+愛は嫉妬に因って縛られる
+愛は迷いに因って踏みにじられる
+愛は病に因って傷つけられる
+愛は嘘に因って軽蔑される
+愛は虚構に因って閉じ込められる
+愛は無知に因って冷やされる
+愛は幻に因って亡きものにされる
+ 
+それでも 
+愛は決して枯れることを知らない
+その本質が命だから
